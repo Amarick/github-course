@@ -9,4 +9,5 @@ hello world
 
 vai corinthians
 
-me pague um cafe ou um xbox
+me pague um cafe ou um xbox series x
+ou ps5
